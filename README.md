@@ -1,6 +1,5 @@
 # burning-dairy
 To record the whole thing we are going through.
-It's really a shame that I can't even use my mother language to illustrate it.
 2020/2/29，Archive Of Our Own，作为一个非盈利性质的同人文作者聚集地，被驱逐了。
 这毫无疑问只是冰山一角。
 外因是饭圈举报，内因则是思想上的censorship
